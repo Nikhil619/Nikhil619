@@ -2,11 +2,10 @@
 
 ## Some things about me:
 
-- I'm a Roboticist and AI Scientist.
+- Problem solver and inventor
 - I'm currently working on various research problems.
 - Contact me if you have an innovative idea to work on.
 - How to reach me: Gmail - sainikhilgona619@gmail.com
-- Im good at solving problems and building algorithms
 - ☮️ Peace is all we want!!
 
 
