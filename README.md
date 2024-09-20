@@ -2,6 +2,6 @@
 
 - Problem solver and inventor
 
-- How to reach me: Gmail - sainikhilgona619@gmail.com
+- How to reach me: Gmail - nikhilgona@tensrai.com
 
 
